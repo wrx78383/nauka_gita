@@ -7,3 +7,5 @@
 
 > zaraz wracam...
 > ide po chrust
+
+> Wrocilem :house_with_garden:
