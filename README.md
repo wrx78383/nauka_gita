@@ -9,3 +9,5 @@
 > ide po chrust
 
 > Wrocilem :house_with_garden:
+
+> Chrust sie skonczyl, ide po nowy :runner:
