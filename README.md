@@ -10,4 +10,4 @@
 
 > Wrocilem :house_with_garden:
 
-> Chrust sie skonczyl, ide po nowy :runner:
+> Chrust sie skonczyl, ide po nowy :deciduous_tree::runner:
