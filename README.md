@@ -11,3 +11,5 @@
 > Wrocilem :house_with_garden:
 
 > Chrust sie skonczyl, ide po nowy :deciduous_tree::runner:
+
+> Łoooo Panie, teraz to bedom jaja...
